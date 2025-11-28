@@ -1,16 +1,13 @@
-## Hi there 👋
+wowee hi there
+my names cally .. or si or cal or simon !
+im 18 ! i love c + h plspls!
+i love call of duty a lot .. 
+ghost fictkin
+<p align="center">
+  <img src="https://i.pinimg.com/736x/99/c3/f7/99c3f7a019f32c4b5de0e2c55f9cf37b.jpg" width="300">
+</p>
 
-<!--
-**soapgaz/soapgaz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=Samgolbacharoo&count=1)
+</p>
+http://localhost:3000/api/callback
