@@ -1,5 +1,5 @@
 wowee hi there
-my names cally .. or si or cal or simon !
+my names si! or simon!
 im 18 ! i love c + h plspls!
 i love call of duty a lot .. 
 ghost fictkin
