@@ -16,7 +16,7 @@ my discord is zombiesbo2 ^_^ ..
 𝄈　　 c*h enc　‿ །| ͜͝ | ͜͝ |།ིྀ　w2i majority of the time !　 𓈒ֵ۫ ❙❘❙ ͏ྀི cuddling and covering is encouraged!
 
 ♡ kinger 2/4/26 ♡
-𓎢𓎟𓎟𓎡 　it / he ʚɞ adult . ageless
+𓎢𓎟𓎟𓎡 　it / ai ʚɞ adult . ageless
 
 -13 dni.
 
