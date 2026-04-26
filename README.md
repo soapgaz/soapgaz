@@ -3,6 +3,7 @@ my names si or callie ^_^. howl/paw pronouns only please. no she, he, they, or a
 im 18 ! i love c + h plspls!
 i love call of duty a lot .. 
 ghost fictkin
+I LOVE MY BEST FRIENDS SCOOBY AND TWIX!! I LOVE YOU SO MUCH TWIX. YOU MAKE ME THE HAPPIEST HYBRID ALIVE
 <p align="center">
   <img src="https://pbs.twimg.com/media/G2fV1DdWQAAzBCe?format=jpg&name=small" width="300">
 </p>
