@@ -1,5 +1,5 @@
 wowee hi there
-my names si or callie ^_^. howl/paw pronouns only please. no she, he, they, or anything else.
+my names si or callie ^_^. it/he/howl/paw prns! genderblank though :3c
 im 18 ! i love c + h plspls!
 i love call of duty a lot .. 
 ghost fictkin
