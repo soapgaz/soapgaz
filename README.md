@@ -1,5 +1,6 @@
 wowee hi there
-my names si or callie ^_^. it/he/howl/paw prns! genderblank though :3c
+my names si or callie ^_^. it/he/she/howl/paw prns!
+idc what gender you percieve me as guys. whatever gender you think i am, i am. have fun w it ;3
 im 18 ! i love c + h plspls!
 i love call of duty a lot .. 
 ghost fictkin
