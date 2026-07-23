@@ -1,2 +1,3 @@
 i go by si , hound or callie.
 read my info on strawpage.
+I AM. A. SYSTEM. I AM A SYSTEM. I AM A MEDICALLY RECOGNISED SYSTEM. Y'ALL FUCKHEADS WITH SYSTEM DNI STAY AWAY FROM ME.
