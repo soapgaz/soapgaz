@@ -4,6 +4,9 @@ I AM. A. SYSTEM. I AM A SYSTEM. I AM A MEDICALLY RECOGNISED SYSTEM. Y'ALL FUCKHE
 
 to the entitled people who have been messaging me recently who I'VE ALREADY HAD ISSUES WITH. I am NOT entitled to reply to you, do NOT spam my messages, and i was ASLEEP. DAMN! I HAVE COD MAID SKINS AND ANYTHING SIMILAR IN MY DNI! I HAVE ALOT OF THE AREA HIDDEN FOR THAT REASON! 
 
+i love my gf @frix6x so so so much. i love her with every bone in my body, she is the love of my life and has proven time and time again how truly amazing she is, how pure-hearted and beautiful she is inside and out. i love my future wife <3
+<img width="2000" height="2000" alt="image" src="https://github.com/user-attachments/assets/638a0b04-fc1d-4570-8d84-7a1865a86dff" />
+
 do NOT hop in my whispers begging for supporter. i will hide you and ignore you AND gift another one of my friends supporter out of pure spite. don't believe me?
 <p align="center"><img width="381" height="230" alt="image" src="https://github.com/user-attachments/assets/63eed465-2948-45f3-9a61-df01650589ac" />
 
@@ -54,3 +57,4 @@ DNI OLD FRIENDS I HAVE NOT MADE UP WITH
 DNI PEOPLE WHO BRAG ABOUT THE FACT THEY'RE ON SHEDTWT OR PEOPLE WHO ARE ANTI-RECOVERY OR SHOVE S//H IN PEOPLE'S FACES
 
 DNI IF YOU BASH PEOPLE FOR THEIR SEXUALITY/GENDER. IT DOESN'T HAVE TO MAKE SENSE TO YOU. JUST THEM. 
+
