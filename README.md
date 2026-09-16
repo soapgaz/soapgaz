@@ -10,6 +10,11 @@ to the entitled people who have been messaging me recently who I'VE ALREADY HAD 
 i love my gf @frix6x so so so much. i love her with every bone in my body, she is the love of my life and has proven time and time again how truly amazing she is, how pure-hearted and beautiful she is inside and out. i love my future wife <3
 <img width="2000" height="2000" alt="image" src="https://github.com/user-attachments/assets/638a0b04-fc1d-4570-8d84-7a1865a86dff" />
 
+-----
+ME AND STEVEN GRANT REAL!!! i love this man
+<img width="2000" height="2000" alt="image" src="https://github.com/user-attachments/assets/f3d605e1-b224-4c2e-adb5-e3565f589c69" />
+
+
 do NOT hop in my whispers begging for supporter. i will hide you and ignore you AND gift another one of my friends supporter out of pure spite. don't believe me?
 <p align="center"><img width="381" height="230" alt="image" src="https://github.com/user-attachments/assets/63eed465-2948-45f3-9a61-df01650589ac" />
 
