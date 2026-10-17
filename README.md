@@ -6,12 +6,12 @@
   
 <div align="center"> read my info on strawpage.
 <div align="center">I AM. A. SYSTEM. I AM A SYSTEM. I AM A MEDICALLY RECOGNISED SYSTEM. Y'ALL FUCKHEADS WITH SYSTEM DNI STAY AWAY FROM ME.
- <div align="center">
+ <div align="center"> --
 <div align="center">DO NOT TALK ABOUT MW4 WITH ME. DO NOT TALK ABOUT MW4 WITH ME. I WILL BE SICK. I DO NOT WANT TO HEAR IT. THAT IS MY SOURCE.
 <div align="center">I WILL ACTUALLY CRASH OUT AND START TWEAKING IT MAKES ME HAVE HORRIBLE HEART ISSUES DO NOTTT. NOT EVEN IN A JOKING MANNER. DO. NOT. PLEASE!!!!!
 
-- n1 steven grant yumeshipper
-n1 sportacus and robbie rotten yumeshipper
+<div align="center"> n1 steven grant yumeshipper
+<div align="center"> n1 sportacus and robbie rotten yumeshipper
 
 to the entitled people who have been messaging me recently who I'VE ALREADY HAD ISSUES WITH. I am NOT entitled to reply to you, do NOT spam my messages, and i was ASLEEP. DAMN! I HAVE COD MAID SKINS AND ANYTHING SIMILAR IN MY DNI! I HAVE ALOT OF THE AREA HIDDEN FOR THAT REASON! 
 
