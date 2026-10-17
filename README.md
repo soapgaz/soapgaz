@@ -1,4 +1,4 @@
-i go by callie, moonie, marc, hound or si!!
+<div align="center">i go by callie, moonie, marc, hound or si!!
 <div align="center">
 <div align="center"> I LOVE MY PARTNERS TWIX, RILEY, PRICEY AND STEVEN! 
 
