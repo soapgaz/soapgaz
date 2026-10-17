@@ -12,6 +12,7 @@
 
 <div align="center"> n1 steven grant yumeshipper
 <div align="center"> n1 sportacus and robbie rotten yumeshipper
+<div align="center"> --
 
 to the entitled people who have been messaging me recently who I'VE ALREADY HAD ISSUES WITH. I am NOT entitled to reply to you, do NOT spam my messages, and i was ASLEEP. DAMN! I HAVE COD MAID SKINS AND ANYTHING SIMILAR IN MY DNI! I HAVE ALOT OF THE AREA HIDDEN FOR THAT REASON! 
 
