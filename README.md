@@ -1,5 +1,6 @@
 i go by callie, moonie, marc, hound or si!!
 <div align="center">
+<div align="center"> I LOVE MY PARTNERS TWIX, RILEY, PRICEY AND STEVEN! 
 
   <img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=blue&right_color=gray&title=Travelers%20of%20the%20night&v=centerfix99" alt="Visitors" />
   
